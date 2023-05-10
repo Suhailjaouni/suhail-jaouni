@@ -1,2 +1,0 @@
-# suhail-jaouni
-Teaching kids
